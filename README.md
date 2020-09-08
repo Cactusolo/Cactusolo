@@ -1,4 +1,4 @@
-### Hi there 👋  Welcome to visit my GitHub Site!
+### 👋  Welcome to visit my GitHub Site!👋 
 
 **My personal website --- [CactusOasis](https://www.sunmiao.name/)**
 
